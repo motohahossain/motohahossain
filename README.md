@@ -2,7 +2,7 @@
 
 ![Developer at Work](https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif)  
 
-🎓 **BSc. Computer Science and Engineering (2019–2024)**  
+🎓 **BSc. Computer Science and Engineering (2019–2025)**  
 📍 **Independent University, Bangladesh**  
 📬 [Email me](mailto:motoha99@gmail.com) | [LinkedIn](https://linkedin.com/in/mohammed-toha-954161299) | [GitHub](https://github.com/motohahossain)  
 
